@@ -1,7 +1,11 @@
 # Awards-and-Recognitions
 
 
-  * 2021      Recognized as the one of the World’s Top 2% Scientists by the Stanford University, 2021. Stanford University, USA in both career and yearly database.
+  * 2023      Awarded with University Publication Awards – 2023 by Sikkim University in the School of Physical Sciences.
+
+  * 2022      Recognized as the one of the World’s Top 2% Scientists by the Stanford University, 2022. Stanford University, USA in both career and yearly database.
+
+ * 2021      Recognized as the one of the World’s Top 2% Scientists by the Stanford University, 2021. Stanford University, USA in both career and yearly database.
    
   * 2020      Recognized as the one of the World’s Top 2% Scientists by the Stanford University, 2020. Stanford University, USA in both career and yearly database.
                  
