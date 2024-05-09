@@ -1,6 +1,6 @@
 # Awards-and-Recognitions
 
-   * 2023       Elevated to Fellow, IETE, 2023.
+   * 2023       Elevated to Fellow, IETE, December, 2023.
      
    * 2023      Recognized as the one of the World’s Top 2% Scientists by the Stanford University, 2023. Stanford University, USA in both career and yearly database.
           
