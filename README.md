@@ -1,6 +1,7 @@
 # Awards-and-Recognitions
 
-
+   * 2023       Elevated to Fellow, IETE, 2023.
+     
    * 2023      Recognized as the one of the World’s Top 2% Scientists by the Stanford University, 2023. Stanford University, USA in both career and yearly database.
           
    * 2023      Awarded with University Publication Awards – 2023 by Sikkim University in the School of Physical Sciences.
